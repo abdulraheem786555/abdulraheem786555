@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @abdulraheem786555
+- 👀 I’m interested in ... DDosing 
+- 🌱 I’m currently learning ... Router Expoits
+- 💞️ I’m looking to collaborate on ... WebTesting
+- 📫 How to reach me ... Mail me ;)
